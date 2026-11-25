@@ -1,2 +1,1 @@
-# fond-studio.github.io
-Fond: custom software and websites
+Fond: custom software and websites. Contact on WhatsApp: https://wa.me/201558524409
